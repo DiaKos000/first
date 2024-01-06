@@ -1,0 +1,1 @@
+linijka próbna 
